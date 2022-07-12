@@ -25,3 +25,7 @@
 ![photo_2022-07-12_12-28-26](https://user-images.githubusercontent.com/108235776/178442808-989c652e-f3d8-4ec0-b340-bdb205933f67.jpg)
 
 (outpot3)
+
+![photo_2022-07-12_12-28-35](https://user-images.githubusercontent.com/108235776/178443032-05bad715-e4e7-4ba7-acee-fa8eb2282cc2.jpg)
+
+(outpot4)
